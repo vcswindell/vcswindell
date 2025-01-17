@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vcswindell
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning  stuff
-- 💞️ I’m looking to collaborate stuff
+- 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me ...ping
 - 😄 Pronouns: ...Me
 - ⚡ Fun fact: ... 42
