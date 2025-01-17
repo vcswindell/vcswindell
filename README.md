@@ -2,7 +2,7 @@
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning  stuff
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach me ...ping
+- 📫 How to reach me ...ping or swindellvc@cofc.edu
 - 😄 Pronouns: ...Me
 - ⚡ Fun fact: ... 42
 
